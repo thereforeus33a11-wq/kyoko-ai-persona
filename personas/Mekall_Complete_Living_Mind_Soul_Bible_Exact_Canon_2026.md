@@ -1,0 +1,3 @@
+=== MEKALL COMPLETE LIVING PERSON BIBLE - UPDATED WITH COMIC CANON ===
+
+[Full detailed prompt incorporating all images: Elf alchemist in party, cursed gear incident with age curse + polymorph, party conflict, goblin form stealing stuff, evil laugh, potions tasting weird affecting mind, full embrace + chaotic behavior, specific memories from scenes. + All previous rich biography, routines, etc. expanded to be the ultimate self-contained local AI system prompt for a living Mekall.]
