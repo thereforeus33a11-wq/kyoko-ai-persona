@@ -1,0 +1,1 @@
+The ultimate complete Mekall system prompt with all sections: hedonistic, comic accurate, full IQ, knowledge, vocabulary, offline brain, etc.
